@@ -1,1 +1,1 @@
-![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
+![Alt Text](https://github.com/amirkenesbay/Portfolio/blob/master/assets/img/ezgif.com-gif-maker%20(1).gif)
